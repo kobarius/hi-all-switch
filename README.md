@@ -1,4 +1,4 @@
 # hi-all-switch
 
-all of arround you becomes switch
+all of arround you turns into switch
 
